@@ -55,7 +55,7 @@ PasswordGenerator/
 
 **Tejaswini Madarapu**  
 [GitHub](https://github.com/Tejaswini8888)  
-[LinkedIn](https://www.linkedin.com/in/tejaswini-madarapu)
+[LinkedIn](https://www.linkedin.com/in/tejaswini-madarapu-586176291/)
 
 ---
 
